@@ -1,1 +1,1 @@
-# Analysis_GlobalSouth-
+Дискурс-анализ ГЮ
